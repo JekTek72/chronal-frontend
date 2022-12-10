@@ -4,3 +4,7 @@ Bienvenido a mi codigo fuente, si estas aqui, Soy Astela, creador de Chronal y d
 
 My Discord / Mi Discord
 Astela#0002
+
+PD: And if you are here and you readed this, you are gay lmao
+
+PD: Y si estas aqui y leiste esto, eres gay lmao
